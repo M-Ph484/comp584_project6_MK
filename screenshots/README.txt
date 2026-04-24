@@ -1,1 +1,1 @@
-Here's all the screenshots taken during the lessons
+Here's screenshots taken during the lessons
